@@ -1,1 +1,0 @@
-# tearek7so3
